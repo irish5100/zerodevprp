@@ -1,1 +1,12 @@
 # zerodevprp
+
+
+<!--
+
+Created By Zero Development
+© 2022 | All Rights Reserved.
+
+-->
+
+
+USE OF THIS PRODUCT WITHOUT PERMISSION WILL LEAD TO A PERMANENT BLACKLIST FROM ZD, AND LEGAL ACTION CAN BE TAKEN AGAINST THE USER.
